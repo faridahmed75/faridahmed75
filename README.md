@@ -1,6 +1,7 @@
+(https://media.licdn.com/dms/image/v2/D5616AQFnXskMJUrMKw/profile-displaybackgroundimage-shrink_350_1400/B56Z8Ilmm4HIAU-/0/1782555503319?e=1787788800&v=beta&t=3q4hbphsdNOBY_WFGokmOjmKgxbs7tr-j1SJZO9r9v8)
 ### Hi there 👋, I am Farid Ahmed
 #### Product & Project Management | FinTech & Enterprise Technology | Business Analysis | Digital Transformation
-![Product & Project Management | FinTech & Enterprise Technology | Business Analysis | Digital Transformation](https://media.licdn.com/dms/image/v2/D5616AQFnXskMJUrMKw/profile-displaybackgroundimage-shrink_350_1400/B56Z8Ilmm4HIAU-/0/1782555503319?e=1787788800&v=beta&t=3q4hbphsdNOBY_WFGokmOjmKgxbs7tr-j1SJZO9r9v8)
+![Product & Project Management | FinTech & Enterprise Technology | Business Analysis | Digital Transformation]
 
 I’m a Product & Project Management professional with 5+ years of experience across fintech, enterprise technology, SaaS, and digital operations. I specialize in transforming complex business problems into scalable products, structured processes, and measurable outcomes.
 
